@@ -1,2 +1,2 @@
-# welcome to jorm™️
+# welcome to jorm™
 a very useless organisation
