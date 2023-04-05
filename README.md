@@ -1,2 +1,2 @@
-# .github
-omg its special yas
+# welcome to jorm™️
+a very useless organisation
